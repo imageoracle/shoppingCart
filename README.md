@@ -19,3 +19,6 @@ hustle for storage.  pay it regularly or have sex with the landlord.  get rich p
 Police, security guards, dogs, german shepherds, Pit bull, a thumb into the eye kills it.  Nothing else will stop it.  
 Ministries will hold free stuff.  Minister Water, Food, Electricity, air machines, find a pry bar and pop AIR MACHINES, ARABIC FOR ATM, AEROBIC, Find the pry bar to get into AIR by car wash.  Flat broke switch will be stuck.  Water sources.  Water Food, Pawn shops, coins on the street, thrown in randomly, homeless fights, glowing shopping carts... 
 abandonned train where homeless sleep, suicide by train.  
+lights, radios, phones, some broken some good.. get points.  
+shit coins
+poop coins 
